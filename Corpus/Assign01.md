@@ -1,5 +1,5 @@
 [Text to Display](https://github.com/sundaybest3/Spring2024/raw/main/Corpus/Readingtext.md)
 
-![Alt Text](https://github.com/sundaybest3/Spring2024/raw/main/Corpus/wordcloud.png)
+![Alt Text](https://github.com/sundaybest3/Spring2024/blob/main/Corpus/sinkholewordcloud.png)
 
 

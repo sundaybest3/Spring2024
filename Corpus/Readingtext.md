@@ -1,5 +1,7 @@
 Why Sinkholes Open Up 
+
 Florida Sinkhole Swallowed a Sleeping Man 
+
 When Jeff Bush, a 37-year-old Florida man, screamed out for help, his brother Jeremy ran into Jeff’s bedroom. Seeing that Jeff and all his furnishings had vanished into the earth, Jeremy desperately tried to rescue him. He didn’t stop until the police arrived. “I tried so hard. I tried everything I could, but I couldn’t get him out,” Jeremy cried. It was a sinkhole that instantly pulled Jeff into the earth. 
 A sinkhole is a hole that opens up in the ground, which is caused by a collapse of the land surface. Sinkholes vary in size from 1 to 600 meters deep. Some sinkholes are large enough to swallow entire buildings. Sinkholes have been around for a long time. It is said that the ancient Maya believed sinkholes were passageways to the world of the dead. 
 Unlike the sinkhole in Florida, not all sinkholes are dangerous, destructive, and ruinous. Some sinkholes attract tourists who are interested in the mystery and the beauty of nature. Some notable sinkholes include Sima Humboldt in Venezuela, which is 314 meters deep, and Xiaozhai Tiankeng in China, 662 meters deep and 626 meters wide. Sinkholes can form underwater, too. Underwater sinkholes are called blue holes. The Great Blue Hole in Belize is one of the most spectacular; it is 300 meters wide and 124 meters deep. 
